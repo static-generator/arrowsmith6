@@ -1,6 +1,7 @@
 # Arrowsmith6
 ## CN 6 - Xia Betrys H. Bana
 14, terrible at speaking in Filipino
+
 A Writer and a digital/traditional artist
 --- 
 Social Media: https://twitter.com/v1kov_?lang=en
